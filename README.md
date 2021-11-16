@@ -6,4 +6,4 @@ ABOUT ME:
 - 💞️ I’m looking to collaborate on ... nothing right now ... we're not there yet.
 - 📫 If you're looking to have a chat with me, feel free to add me on Discord at HectorLikesEggnog#9073
 
-Thanks and I look forward to collaborating!
+Thank you very much - I look forward to collaborating!
